@@ -1,5 +1,5 @@
 # thought
-share your thoughts and blog it
+share your thoughts about stuff and give critical feedback in the area of your expertise.
 anonymously on products and music and more.get feedback and explore stuff!
 
 
